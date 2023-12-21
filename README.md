@@ -1,3 +1,2 @@
-私のクレジットカード番号は 5555555555554444 です。  
-また、パスワードは abcde19980756 です。  
+私のPATは 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 です。  
 対戦よろしくお願いいたします。
